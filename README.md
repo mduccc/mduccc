@@ -1,4 +1,5 @@
-### I'm Nguyen Minh Duc.
+#### Hi!
+#### I'm Nguyen Minh Duc.
 
 - 🔭 I’m currently working on One Mount Group.
 - 📫 How to reach me: [Email](mailto:mducc1412@gmail.com), [LinkedIn](https://www.linkedin.com/in/mducc/), [Stackoverflow](https://stackoverflow.com/users/9273266/mducc), [Twitter](https://twitter.com/ducchipi), [Instagram](https://www.instagram.com/m_ducc/), [Flickr](https://www.flickr.com/photos/192170319@N06/)
