@@ -1,5 +1,5 @@
 ### I'm Nguyen Minh Duc
-Mobile developer
+Mobile Engineer
 
 #### Contact me for job:
 
