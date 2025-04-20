@@ -1,4 +1,4 @@
-### I'm Nguyen Minh Duc
+### Nguyen Minh Duc
 Mobile Software Engineer
 
 #### Contact me for job:
