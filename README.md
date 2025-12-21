@@ -3,7 +3,7 @@ Mobile Software Engineer
 
 #### Contact me for job:
 
-Email: mducc1412@gmail.com
+mducc1412@gmail.com
 
 [Linkedin](https://www.linkedin.com/in/mducc/)
 
