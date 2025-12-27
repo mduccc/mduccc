@@ -1,13 +1,13 @@
 ### Nguyen Minh Duc
 Mobile Software Engineer
 
-#### Contact me for job:
+### Contact me for job:
 
 mducc1412@gmail.com
 
 [Linkedin](https://www.linkedin.com/in/mducc/)
 
-#### Sharing:
+### Sharing:
 [Medium](https://medium.com/@mducc)
 
 ### Flickr
